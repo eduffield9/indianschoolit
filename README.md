@@ -13,3 +13,4 @@ a ![Uploading 199ce965e4cdcdc1f6656fe587ed64ff.jpeg…]()
 34 
 3 4i
 a   io oi23 noo2i no2oioni2ionio234 
+![thumbnail_ac91c25e9bcd359eddd403fb660a8df5](https://github.com/eduffield9/indianschoolit/assets/152788646/cb1225a7-ed19-4f6f-96b7-5ec3aaf95f69)
